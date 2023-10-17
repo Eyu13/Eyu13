@@ -4,4 +4,4 @@
 👀 I’m looking to collaborate on small- and large-scale projects, particularly targetted towards improving education accessibility.
 📫 How to reach me: 
 Email:eyeruslemma86@gmail.com/eyeruslemma22@gmail.com
-LinkedIn: https://www.linkedin.com/in/Eyerus Lemma/
+LinkedIn: https://www.linkedin.com/in/EyerusLemma/
