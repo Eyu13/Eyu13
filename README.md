@@ -4,4 +4,4 @@
 👀 I’m looking to collaborate on a targetted towards improving education accessibility.
 📫 How to reach me: 
 Email:eyeruslemma86@gmail.com/eyeruslemma22@gmail.com
-LinkedIn: https://www.linkedin.com/in/EyerusLemma/
+LinkedIn: https://www.linkedin.com/in/eyerus-lemma
